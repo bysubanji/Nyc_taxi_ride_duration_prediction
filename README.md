@@ -139,7 +139,7 @@
 
 ![-----------------------------------------------------](https://raw.githubusercontent.com/andreasbm/readme/master/assets/lines/rainbow.png)
 
-* Ppt Presentation Link:-https://docs.google.com/presentation/d/1w9QEwE-7cewVdE4J_WcM4UK41Aw-2PqL3kkfj6dvnmc/edit?usp=sharing
+* Ppt Presentation Link:-https://drive.google.com/file/d/19LcgJxJwbhaTL8rYRVuru9ubTKLu2G5q/view?usp=sharing
 
 
 
